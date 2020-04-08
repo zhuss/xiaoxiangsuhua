@@ -1,6 +1,12 @@
 # 小像素画
 分享一些像素画，程序员也很有趣，做了一个像素画的社区，提供一个小程序，和微信公众号，都是同名。
 
+[武汉，到，归队，是](https://mp.weixin.qq.com/s/Jhg4sKY0zCzVJ263YJhDAw)
+
+[圆桌骑士](https://mp.weixin.qq.com/s/W8SYGDhpGmFKXhxSKrdZnA)
+
+[麦兜，小心点开配乐](https://mp.weixin.qq.com/s/hl3m3IGWC1tYYZATsd3T3A)
+
 [世界奇奇怪怪，像素画可可爱爱](https://mp.weixin.qq.com/s/VcElJqIHJQXg1q7bnOL45g)
 
 [海绵宝宝](https://mp.weixin.qq.com/s/tiX5frtcri_ALgf5k6s1XQ)
