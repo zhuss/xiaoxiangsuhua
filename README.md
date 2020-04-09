@@ -1,6 +1,10 @@
 # 小像素画
 分享一些像素画，程序员也很有趣，做了一个像素画的社区，提供一个小程序，和微信公众号，都是同名。
 
+[粉红色系异次元相遇像素画](https://mp.weixin.qq.com/s/SOGhWtnAIs9RYkd3Y7uJdQ)
+
+[小黄人](https://mp.weixin.qq.com/s/Uc6MnClCrWrsa1o7ceFcmw)
+
 [武汉，到，归队，是](https://mp.weixin.qq.com/s/Jhg4sKY0zCzVJ263YJhDAw)
 
 [圆桌骑士](https://mp.weixin.qq.com/s/W8SYGDhpGmFKXhxSKrdZnA)
