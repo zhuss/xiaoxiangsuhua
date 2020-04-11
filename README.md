@@ -1,6 +1,14 @@
 # 小像素画
 分享一些像素画，程序员也很有趣，做了一个像素画的社区，提供一个小程序，和微信公众号，都是同名。
 
+[祖国花朵的像素画](https://mp.weixin.qq.com/s/l_YWpOCFqSRH5f_OKNR4ew)
+
+[白猫警士](https://mp.weixin.qq.com/s/pDWrhHmayv0lNZWPsfIvXw)
+
+[这么干净的像素画，像极了...](https://mp.weixin.qq.com/s/0_Dysx1AWahnXtF6eKFi2A)
+
+[元气骑士武器](https://mp.weixin.qq.com/s/lMfuEe83wVTuuUovXS6Ijg)
+
 [粉红色系异次元相遇像素画](https://mp.weixin.qq.com/s/SOGhWtnAIs9RYkd3Y7uJdQ)
 
 [小黄人](https://mp.weixin.qq.com/s/Uc6MnClCrWrsa1o7ceFcmw)
