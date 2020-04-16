@@ -1,6 +1,22 @@
 # 小像素画
 分享一些像素画，程序员也很有趣，做了一个像素画的社区，提供一个小程序，和微信公众号，都是同名。
 
+[爱丽丝梦游仙境](https://mp.weixin.qq.com/s/2Wod5l6x-vuGA1sa4GPkKw)
+
+[美国队长2](https://mp.weixin.qq.com/s/Wb7o3bCe_a5hnr_HJW6GEw)
+
+[像素画大佬专场之@WillaSun_西西](https://mp.weixin.qq.com/s/GtOik2hkd0pq6vRyGwu4pw)
+
+[飞奔的美国队长](https://mp.weixin.qq.com/s/wlHcusty5xryXkLpIU2psg)
+
+[送你一颗四叶草，因为它代表幸运](https://mp.weixin.qq.com/s/ktGk-vCKR5JbLffgZL1-vQ)
+
+[小红鸟，不知道叫什么名字](https://mp.weixin.qq.com/s/dlQNhVYd4N-O3kzm_iHuFw)
+
+[人间四月去赏花](https://mp.weixin.qq.com/s/JTStoWFsosLv3DH0U_2bUw)
+
+[国宝大熊猫](https://mp.weixin.qq.com/s/RKejKbpIZbpv1qD5lDfwvw)
+
 [祖国花朵的像素画](https://mp.weixin.qq.com/s/l_YWpOCFqSRH5f_OKNR4ew)
 
 [白猫警士](https://mp.weixin.qq.com/s/pDWrhHmayv0lNZWPsfIvXw)
