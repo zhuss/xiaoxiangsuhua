@@ -1,6 +1,24 @@
 # 小像素画
 分享一些像素画，程序员也很有趣，做了一个像素画的社区，提供一个小程序，和微信公众号，都是同名。
 
+[差点被遗忘的像素画](https://mp.weixin.qq.com/s/RxzLCB2C4lIxc4AdqdVTBA)
+
+[疯狂动物城豹警官](https://mp.weixin.qq.com/s/Ip4u-BK4Sd6w4uv18p_E9g)
+
+[强迫症的福音来啦，看这些像素画](https://mp.weixin.qq.com/s/NF96RLKzfgE-Uhjtf8cgxg)
+
+[独角兽](https://mp.weixin.qq.com/s/giaOBPgSsj15q18sq6dwoQ)
+
+[迪士尼动物明星们的像素画](https://mp.weixin.qq.com/s/mp1Nag1pW7dWf3Th1xkcfQ)
+
+[魔兽世界伊利丹](https://mp.weixin.qq.com/s/z61kAi_0M-YwpVR0lVaAkg)
+
+[[第二期]谁说像素画必须是小姐姐才能画，大叔画的他不香吗？](https://mp.weixin.qq.com/s/fV2Xkptd3lpkkuIKq7GriA)
+
+[美队4](https://mp.weixin.qq.com/s/0symeZDFEL2UTlLs8DUXbw)
+
+[美队3](https://mp.weixin.qq.com/s/wIT90LuRZNdAPW1n6rsLug)
+
 [爱丽丝梦游仙境](https://mp.weixin.qq.com/s/2Wod5l6x-vuGA1sa4GPkKw)
 
 [美国队长2](https://mp.weixin.qq.com/s/Wb7o3bCe_a5hnr_HJW6GEw)
