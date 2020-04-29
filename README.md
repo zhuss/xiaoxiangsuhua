@@ -1,6 +1,28 @@
 # 小像素画
 分享一些像素画，程序员也很有趣，做了一个像素画的社区，提供一个小程序，和微信公众号，都是同名。
 
+[王者农药不玩女英雄，那将毫无乐趣](https://mp.weixin.qq.com/s/WeibWKTkd_O_a95snMWfbQ)
+
+[植物大战僵尸豌豆](https://mp.weixin.qq.com/s/xWW1RUNPfqjiA0gCZDE-Fw)
+
+[画完像素画别着急拍照发圈，试试这样的](https://mp.weixin.qq.com/s/Rt4sykpqeGRMNLkIeaUHlw)
+
+[越野摩托](https://mp.weixin.qq.com/s/dTA89w-jpVdN6b_6xsbjsQ)
+
+[番茄小姐姐的水果零食像素画](https://mp.weixin.qq.com/s/u-YB_8q7B3PVHPbZWa6jpQ)
+
+[元气骑士狂战士䑏疏皮肤](https://mp.weixin.qq.com/s/s-PLZUUr-jy5l-jDT3pCeQ)
+
+[火烈鸟](https://mp.weixin.qq.com/s/PXJvyQc4sCHY5D37cTwLVg)
+
+[几个小像素画，简单又可爱](https://mp.weixin.qq.com/s/vkeER0TCmTv4fmqRGHFOdg)
+
+[机器人总动员瓦力](https://mp.weixin.qq.com/s/6sE-b3rfgVbqg5i7aCn6Pg)
+
+[你们玩的是荣耀，我玩的是青春](https://mp.weixin.qq.com/s/ROh7AQ2Rm4aZrnbQZr7MWQ)
+
+[去时至尊宝，归来孙大圣](https://mp.weixin.qq.com/s/wRI749GNMGl4If-R5lnKzA)
+
 [差点被遗忘的像素画](https://mp.weixin.qq.com/s/RxzLCB2C4lIxc4AdqdVTBA)
 
 [疯狂动物城豹警官](https://mp.weixin.qq.com/s/Ip4u-BK4Sd6w4uv18p_E9g)
